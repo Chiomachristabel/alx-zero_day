@@ -1,1 +1,1 @@
-I am a software Engineer and i can do hard things
+I am a software Engineer and I can do hard things
